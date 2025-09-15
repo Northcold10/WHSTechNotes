@@ -9,3 +9,7 @@ There are many ways that using a AI tool can cause some promblems like they give
 # September 8, 2025
 
 A carrer that i want to do in teh future that requries coding is being a software engineer. a software engineer is always gonna deal with coding because a example of being a software engineer is making video games and we have to code to make the characters on screen to walk,talk,and picking or dropping items. and there might be in error in the coding so we also have to fix that and if were working like in non gaming like google where we have to code there aswell and thats what being a software enginner have to do with coding.
+
+# September 16, 2025
+
+So a creative way to use AI that will help the world is a AI docter. a AI doctor is a AI that can accurtly know your dignoises accuratly and give you the medicine you will need to cure whatever you have. it can also assist the people who need care can check tempeture and can also heal damages in the body it will be active 24/7 and have a battery that will make it last for a long time then if we need to cahrge it we can switch out the robots this will change the community becuase we will have better and faster healthcare and can possibly save lifes. and thats my idea for the presintial AI challenge.
