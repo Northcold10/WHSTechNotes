@@ -13,3 +13,7 @@ A carrer that i want to do in teh future that requries coding is being a softwar
 # September 16, 2025
 
 So a creative way to use AI that will help the world is a AI docter. a AI doctor is a AI that can accurtly know your dignoises accuratly and give you the medicine you will need to cure whatever you have. it can also assist the people who need care can check tempeture and can also heal damages in the body it will be active 24/7 and have a battery that will make it last for a long time then if we need to cahrge it we can switch out the robots this will change the community becuase we will have better and faster healthcare and can possibly save lifes. and thats my idea for the presintial AI challenge.
+
+# September 22, 2025
+
+What i think about working online with a jon as ikea would be bad because i dont know how it will help people because your restocking online there probably thinking of connecting the game to a robot and is able to control it but the robots might malfunction or something but would happen and i dont think is a safe for the customers either and i dont know how companyies would benefit from paying someone for playing a game the only way they can benefit if they actually sell furniture in the game but that highly likly what would happen if they make it to where is helps customers and comapany then i would agree with the statement but there isnt alot of information to go off on at the moment.
