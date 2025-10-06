@@ -17,3 +17,7 @@ So a creative way to use AI that will help the world is a AI docter. a AI doctor
 # September 22, 2025
 
 What i think about working online with a jon as ikea would be bad because i dont know how it will help people because your restocking online there probably thinking of connecting the game to a robot and is able to control it but the robots might malfunction or something but would happen and i dont think is a safe for the customers either and i dont know how companyies would benefit from paying someone for playing a game the only way they can benefit if they actually sell furniture in the game but that highly likly what would happen if they make it to where is helps customers and comapany then i would agree with the statement but there isnt alot of information to go off on at the moment.
+
+# October 6, 2025
+
+If i was in charge of the school whta i would do for AI and tehcnology is that I would want too unbann phones but due to the texas satate law i wont be abe to unbanned the phone and i would want a way to see if a student is using AI becuase i dont belieave AI would help with students learning and for the online game i would want to put a system that will tell me if there still learning if not then the students would be allow to play on the computer but i do think some whould be blocked and offer some learning games for if they need help with certain things they can go play game version of the lessson
