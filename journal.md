@@ -21,3 +21,7 @@ What i think about working online with a jon as ikea would be bad because i dont
 # October 6, 2025
 
 If i was in charge of the school whta i would do for AI and tehcnology is that I would want too unbann phones but due to the texas satate law i wont be abe to unbanned the phone and i would want a way to see if a student is using AI becuase i dont belieave AI would help with students learning and for the online game i would want to put a system that will tell me if there still learning if not then the students would be allow to play on the computer but i do think some whould be blocked and offer some learning games for if they need help with certain things they can go play game version of the lessson
+
+# October 15, 2025
+
+https://angelsoler.my.canva.site/ The project that i have created with the canva AI is to inspire high schooler to do coding and canva AI did it perfect it had great information for jobs and how much they pay and also interactive elemts like clicking about ot jobs or the quiz that was at the end of the presentation the best part of the interactive aspect was the quiz but all of it was great and the way that i will make my next canva AI project would be by adding more information and more interactive aspects like a minigame or multiple mini quizese but the one canva AI made was great and didnt have any issues tho it did took alot of coding to make.
