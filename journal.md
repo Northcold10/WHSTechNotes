@@ -25,3 +25,11 @@ If i was in charge of the school whta i would do for AI and tehcnology is that I
 # October 15, 2025
 
 https://angelsoler.my.canva.site/ The project that i have created with the canva AI is to inspire high schooler to do coding and canva AI did it perfect it had great information for jobs and how much they pay and also interactive elemts like clicking about ot jobs or the quiz that was at the end of the presentation the best part of the interactive aspect was the quiz but all of it was great and the way that i will make my next canva AI project would be by adding more information and more interactive aspects like a minigame or multiple mini quizese but the one canva AI made was great and didnt have any issues tho it did took alot of coding to make.
+
+# October 20, 2025
+
+ Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin |second | 91A  |
+| Hardeep  | third | 61F  |
+| Marla    | first | 35B  |
