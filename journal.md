@@ -33,3 +33,11 @@ https://angelsoler.my.canva.site/ The project that i have created with the canva
 | Franklin |second | 91A  |
 | Hardeep  | third | 61F  |
 | Marla    | first | 35B  |
+
+# October 27, 2025
+
+| Name     | Main Dish | Dessert |
+| :------- | :-------- | :------ |
+| Fiona    | gado gado |cremebrulle|
+| Tobias   |shrimp civechi| french apple cake|
+| Leanne   |Beef welington|raspberry Tiramisu|
