@@ -41,3 +41,7 @@ https://angelsoler.my.canva.site/ The project that i have created with the canva
 | Fiona    | gado gado |cremebrulle|
 | Tobias   |shrimp civechi| french apple cake|
 | Leanne   |Beef welington|raspberry Tiramisu|
+
+# November 3, 2025
+
+It is a promblem that snap is losing money because if they dont have money thhey arent able too help families who rely on the prgram for food and the way technology will be able to help are with apps they can make a apps or a video that explaines what they do and where they can find thhe food banks they may be some challenges like no internet or technology but the food bank can always make bill boareds or poster or they can get sponser from grocery store that may help spread the cause and they way i'll solve food insecurity is by making a app that can help locate food banks or hot meals. 
