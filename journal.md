@@ -49,3 +49,5 @@ It is a promblem that snap is losing money because if they dont have money thhey
 # November 10, 2025
 
 Yes
+
+The way app can change the way people in the holidays are apps that give you activity and i feel like this makes tthe holidays better because there are many people that dont know what to do in the holiday and developers should make holiday save for families because privacy is important to everybody if we get holiday tech and they put like a camera or a recorder that will be a invasion of our privacy.
