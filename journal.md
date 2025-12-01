@@ -52,3 +52,7 @@ Yes
 # November 17, 2025
 
 The way app can change the way people in the holidays are apps that give you activity and i feel like this makes tthe holidays better because there are many people that dont know what to do in the holiday and developers should make holiday save for families because privacy is important to everybody if we get holiday tech and they put like a camera or a recorder that will be a invasion of our privacy.
+
+# December 1, 2025
+
+A drone technician is someone who maintains,repiar and codeing droins and they make $52,000. a droin technician needs a electronic or engineering and need high expirenece with repairs and strong mechanical and promblem solving skill and when im older i would like to those for a living because i would want to repair and code droins and the pay is very good and you could also meet wonderful people while woking and it can be a good way to learn even more and get a bettter career
