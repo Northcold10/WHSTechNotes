@@ -56,3 +56,7 @@ The way app can change the way people in the holidays are apps that give you act
 # December 1, 2025
 
 A drone technician is someone who maintains,repiar and codeing droins and they make $52,000. a droin technician needs a electronic or engineering and need high expirenece with repairs and strong mechanical and promblem solving skill and when im older i would like to those for a living because i would want to repair and code droins and the pay is very good and you could also meet wonderful people while woking and it can be a good way to learn even more and get a bettter career
+
+# December 8, 2025
+
+the reason i think thats cuasing the waymo cars to have issues is it didnt have enough testing an dn what i mean by that is that the team didnt show the AI in the car that can detect things or they forgot to make it detect thats causing the car to zoom pass school buses and a way i would fix this promblem is that i would do moretesting show the AI what a school bus is and how to detect schools near by then go and test it to make sure everything will work better than before and if it needs moretesting i would also try too make the sensor and AI recognition better because that can be a source of one of the promblem with the car,and thats what i will do if i was in the waymo team.
