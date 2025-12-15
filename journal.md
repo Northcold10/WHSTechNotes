@@ -60,3 +60,7 @@ A drone technician is someone who maintains,repiar and codeing droins and they m
 # December 8, 2025
 
 the reason i think thats cuasing the waymo cars to have issues is it didnt have enough testing and  what i mean by that is that the team didnt show the AI in the car that can detect things or they forgot to make it detect thats causing the car to zoom pass school buses and a way i would fix this promblem is that i would do moretesting show the AI what a school bus is and how to detect schools near by then go and test it to make sure everything will work better than before and if it needs moretesting i would also try too make the sensor and AI recognition better because that can be a source of one of the promblem with the car,and thats what i will do if i was in the waymo team.
+
+# December 15, 2025
+
+my plans for winter break is to play games all break.
